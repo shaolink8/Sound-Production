@@ -1,3 +1,3 @@
 Sound Production
 
-Remaking a cover of Faded on Ableton Live Suite
+Remaking the song Faded by Alan Walker on Ableton Live Suite
